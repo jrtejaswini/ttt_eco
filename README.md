@@ -1,2 +1,3 @@
 # ttt_eco
 🌿 Empowering communities to reduce plastic pollution through Eco-Bricks—turning waste into value for a cleaner and greener future
+Zero Waste Eco Brick Solution is a sustainability-driven project aimed at addressing plastic pollution through the creation of eco-bricks made from non-recyclable plastic waste. By collecting, cleaning, and compacting plastic into reusable building blocks, the project promotes a zero-waste mindset, environmental awareness, and community engagement. This initiative supports sustainable development by offering a practical, low-cost solution for waste reduction and eco-friendly construction.
